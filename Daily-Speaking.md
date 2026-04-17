@@ -33,7 +33,7 @@ Small steps, but staying consistent.
 - Speaking: 10 min ✅
 - New Words: 5
 - Mistakes: tense
-- 
+ 
 ## Day 3
 
 Day 3 of improving my spoken English.
