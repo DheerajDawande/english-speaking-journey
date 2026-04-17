@@ -33,4 +33,21 @@ Small steps, but staying consistent.
 - New Words: 5
 - Mistakes: tense
 
-Streak: 2 🔥
+#Day 3 of improving my spoken English.
+
+Today I focused on understanding the correct use of “has, have, and had”.
+
+I practiced:
+• How “has” is used with singular subjects
+• How “have” is used with plural subjects
+• How “had” is used for past situations
+
+It seems simple, but using them correctly in sentences makes a big difference in communication.
+
+Right now, I’m focusing only on basics because I want to build a strong foundation step by step.
+
+Consistency over perfection.
+
+#SpokenEnglish #CommunicationSkills #Consistency #Day3
+
+Streak: 3 🔥
