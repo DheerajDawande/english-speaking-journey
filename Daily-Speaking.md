@@ -19,6 +19,7 @@ Small steps, but staying consistent.
 - Mistakes: tense
 
 ## Day 2
+
 Day 2 of my learning journey.
 
 Today I worked on the improving my spoken English.
@@ -32,8 +33,10 @@ Small steps, but staying consistent.
 - Speaking: 10 min ✅
 - New Words: 5
 - Mistakes: tense
+- 
+## Day 3
 
-#Day 3 of improving my spoken English.
+Day 3 of improving my spoken English.
 
 Today I focused on understanding the correct use of “has, have, and had”.
 
