@@ -53,4 +53,23 @@ Consistency over perfection.
 
 #SpokenEnglish #CommunicationSkills #Consistency #Day3
 
-Streak: 3 🔥
+## Day 4
+
+Day 4 of improving my spoken English.
+
+Today I focused on understanding tenses:
+
+• Present Simple
+• Past Simple
+• Future Simple
+• Negative sentences
+
+Also did a quick revision of previous topics.
+
+It feels like a lot, but revising helps connect everything together.
+
+Trying to build a strong base step by step.
+
+#SpokenEnglish #CommunicationSkills #Consistency #Day4
+
+Streak: 4🔥
