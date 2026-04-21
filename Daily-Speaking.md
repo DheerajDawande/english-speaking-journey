@@ -105,4 +105,19 @@ Trying to build a strong base step by step.
 
 #SpokenEnglish #CommunicationSkills #Consistency #Day6
 
-Streak: 6🔥
+
+Day 7 of improving my spoken English.
+
+Today I focused on revision and understanding tenses:
+
+• Present Simple • Past Simple • Future Simple • Negative sentences
+
+Also did a quick revision of previous topics.
+
+It feels like a lot, but revising helps connect everything together.
+
+Trying to build a strong base step by step.
+
+#SpokenEnglish #CommunicationSkills #Consistency #Day7
+
+Streak: 7🔥
